@@ -1,0 +1,9 @@
+-----------
+
+***WELCOME TO HASSAN-RAJPOOT-MD PLUGINS LIST CREATED BY HASSAN-RAJPOOT214***
+
+-----------
+
+***THE WORLD BEST WHATSAPP BOT***
+
+----------
